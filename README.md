@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning to code on python & using AI tool to enriching my business presence 
 - 💞️ I’m looking to collaborate on crating applications 
 - 📫 How to reach me cbo@nripropertynparentcare.com
+- www.nripropertynparentcare.com
+-https://greeninfaurbanandrural.netlify.app
 - business WhatsApp +91 9133014638
 - 😄 Pronouns: casting students as stars in network to in professional  life, "stars in making to star casting🌟 "
 - ⚡ Fun fact: social enterprise for students, agripenures & property manager, using green technologies for urban & Rural areas.
